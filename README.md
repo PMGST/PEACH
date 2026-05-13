@@ -1,2 +1,2 @@
-Add me Discord
+dm
 gst2222
